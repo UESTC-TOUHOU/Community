@@ -1,4 +1,4 @@
-# UESTC Group Application 👏
+# UESTC-TOUHOU Group Application 👏
 
 > 本组织是隶属于UESTC幻想乡，自发创立的电子科技大学东方同好会 🏠
 > 
